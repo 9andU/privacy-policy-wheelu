@@ -1,4 +1,4 @@
-# WHEELU Privacy Policy
+# WheelU Privacy Policy
 
 Effective Date: 2026-05-29
 
